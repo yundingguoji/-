@@ -1,6 +1,6 @@
 
 
-云顶国际官方地址最新地址发布 永 久 域 名 https://github.com/1492333788/w8047.com
+云顶国际官方地址最新地址发布永久域名：https://github.com/yundingguoji/-/tree/main
 
 ##⭐️👉访问最新地址1：https://2582500.com/
 
