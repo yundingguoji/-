@@ -16,7 +16,7 @@
 
 手机app官方下载网址（安卓、苹果） https://ydjc112.com:8989/mobile-client/v5/index.html?d#/download
 
-手机app云顶下载网址（仅限安卓） https://1drv.ms/u/s!AlyhfPx7hhlYgRPKUz2-I3r-fF9w
+手机app云端下载网址（仅限安卓） https://1drv.ms/u/s!AlyhfPx7hhlYgRPKUz2-I3r-fF9w
 
 部分地区屏蔽严重，下载【爱加速】免费使用，切换地区网络（建议使用北方省份：甘肃、新疆、内蒙古、黑龙江等）即可顺利进入 https://www.91ajs.com/download
 
