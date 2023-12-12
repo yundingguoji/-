@@ -1,5 +1,3 @@
-
-
 云顶国际官方最新地址发布永久域名：https://github.com/yundingguoji/-/tree/main
 
 ##⭐️👉访问最新地址1：https://2582500.com/
@@ -11,6 +9,8 @@
 ##⭐️👉访问最新地址4：https://542133.org/
 
 我们将永久免费给用户最方便快捷的游戏体验，当你偶尔打不开我们网站时⚠️请别担心，第一时间下载通讯软件添加美女专员🧚‍♀️
+![image](https://github.com/yundingguoji/-/assets/152949410/80289da6-4e70-433b-a7fb-e83cadbf4ca3)
+
 
 1️⃣下载【泡泡】通讯软件 https://ya.cn/index.html  添加您的美女专员🧚‍♀️朵朵的账号（yd8899）、🧚‍♀️果果的账号（yd0001）
 
